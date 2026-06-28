@@ -1,4 +1,4 @@
-# 
+# Turbo DisplayFusion presets for Mac OS | Elite DisplayFusion presets for PC Windows. Featuring data visualization and version history — optimized for maximum performance on every platform.
 
 
 
